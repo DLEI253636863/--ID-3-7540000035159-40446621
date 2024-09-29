@@ -10,4 +10,5 @@
 ![ดาวน์โหลด (2)](https://github.com/user-attachments/assets/93583508-ce9a-461a-a18b-fdef136f583a)
 ![ดาวน์โหลด (2)](https://github.com/user-attachments/assets/43d8fb33-b584-466d-b9a1-6aaa5afa8602)
 ![images (2)](https://github.com/user-attachments/assets/f6bfe16d-39fe-43f8-a6da-758e6e64d040)
-
+https://commons.m.wikimedia.org/wiki/File:%E0%B8%94%E0%B8%B3%E0%B8%A3%E0%B8%87%E0%B8%95%E0%B8%B3%E0%B9%81%E0%B8%AB%E0%B8%99%E0%B9%88%E0%B8%87%E0%B8%95%E0%B8%A5%E0%B8%AD%E0%B8%94%E0%B8%8A%E0%B8%B5%E0%B8%A7%E0%B8%B4%E0%B8%95%E0%B9%83%E0%B8%99%E0%B8%88%E0%B8%B1%E0%B8%87%E0%B8%AB%E0%B8%A7%E0%B8%B1%E0%B8%94%E0%B9%80%E0%B8%A5%E0%B8%A2.jpg
+https://acrobat.adobe.com/id/urn:aaid:sc:AP:fc5ca806-80d8-4a4f-a96b-3f6b05834414
